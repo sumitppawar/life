@@ -13,3 +13,7 @@ Book
 6. https://www.amazon.sg/Intelligent-Investor-Benjamin-Graham-Book/dp/0060555661
 7. https://www.amazon.sg/Devil-Take-Hindmost-Financial-Speculation/dp/0452281806
 8. https://www.goodreads.com/book/show/10669.When_Genius_Failed
+
+
+Books on selling 
+1. Fanatical Prospecting
